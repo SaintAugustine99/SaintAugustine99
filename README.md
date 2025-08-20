@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on  - AI governance research, Audio visual and theories of cognition.  
 - 📫 How to reach me onserioogeto@gmail.com is ideal.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Animal lover, has 3 German shepherd pups/ General Fitness and Literature enthusiast. Amateur Flaneur
+- ⚡ Fun fact: Animal lover, has 3 German shepherd pups/ General Fitness and Literature enthusiast. 
 
